@@ -11,5 +11,7 @@ My other interest include sports such as football and badminton , running , trek
 
 Ways to reach me : 
 Github: https://github.com/adi-lb-phoenix
+
 Linkedin: https://www.linkedin.com/in/adithya-l-bhat/
+
 Email: adithyabhatl1998@gmail.com
